@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The Intrepid Podcast #1
+title: The Intrepid Podcast 1
 categories: podcast
 tags: politics, history, political science, intrepid party, intrepid life
 ---
