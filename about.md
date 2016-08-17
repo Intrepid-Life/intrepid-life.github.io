@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-Wanted for hazardous endeavor.  Striving for the greater good, moral and physical limits tested. May stand alone. Glory and a better society in the event of success.
+**Wanted for hazardous endeavor.  Striving for the greater good, moral and physical limits tested. May stand alone. Glory and a better society in the event of success.**
 
 The Intrepid Life seeks great joys and great triumphs, which never come easily, they must be trained for and fought for. Most people live to only overcome short-term challenges such as getting a promotion at work, avoiding major fights with loved ones, and just fitting in. The Intrepid Life plays the long game, always thinking of how to  trust yourself when the whole world doubts you and how to achieve success when you confront a crowded hour. An adventurous endeavor is a great tool, but not for its own sake, rather it should be used to develop the moral and physical courage necessary to overcome any challenge. Most importantly though, the Intrepid Life sees history unfolding as a grand play, in which we each have a heroic part. Our whole life should be seen as preparation for crowded hours,  when we will be called upon to stand fast in the darkness waiting for the dawn, to charge up the hill believing that your actions are willing others to follow you, that you will follow your conscience and resist evil to whatever end.
 
